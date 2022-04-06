@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @UtkG20
-- 👀 I’m interested in YOU
+- 👀 I’m interested in CODE/COLLAB/CAFFEINE
 - 🌱 I’m currently learning to evolve
 - 💞️ I’m looking to collaborate on everything
 - 📫 Reach out to me through SMTP goyalgoyal9784@gmail.com
